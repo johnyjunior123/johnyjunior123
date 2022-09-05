@@ -1,4 +1,4 @@
-### Hello, I'm the Student of System of Information 👋
+### Hello, I'm a Student of System of Information 👋
 
 
 - 🔭 I’m not currently working.
